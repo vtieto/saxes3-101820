@@ -18,4 +18,9 @@ Detente
 Straphanging
 Return of the Brecker Brothers
 
+People Brecker played with:
+Pat Metheny
+Herbie Hancock
+McCoy Tyner
+Joanne Brackeen
 
