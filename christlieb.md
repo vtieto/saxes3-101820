@@ -6,3 +6,8 @@ Christlieb played the sax solos on Steely Dan's hit song "Deacon Blues" from the
 
 Christlieb currently plays with his recently formed 11-piece group, the "Tall & Small Band"; the Bill Holman Orchestra; and his own quartet. Also, for years Pete has been involved in professional drag racing, with his cars participating in numerous races in the southwest and across the country. His team has won two national championships for the 'Blown Alcohol Dragster' class.
 
+Pete's Horns:
+tenor sax
+bari sax
+flute
+
