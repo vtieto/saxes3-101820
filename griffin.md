@@ -8,3 +8,7 @@ Max Roach
 John Coltrane
 Hank Mobley
 
+Instruments:
+tenor sax
+alto sax
+
